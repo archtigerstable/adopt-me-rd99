@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with top Scripts for adopt me, the #1 Script. Includes custom skins and one-hit kill for unbeatable performance.
 
 
 
